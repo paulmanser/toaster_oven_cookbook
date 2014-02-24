@@ -40,9 +40,4 @@ ingredients now as well.  (NB: If using fresh basil, add
 this later!)
 
 5. Set toaster oven to 375 and bake for 10 minutes. If using
-fresh basil, pull out the bagels and put it on with about 1 minute left.  Bagels should be crispy on the outside, soft on the inside,
-and the cheese should be *slightly* browned
-
-
-
-
+fresh basil, pull out the bagels and put it on with about 1 minute left and throw them back in.  Bagels should be crispy on the outside, soft on the inside, and the cheese should be *slightly* browned
